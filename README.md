@@ -1,1 +1,0 @@
-# adelaide-city-town-acres-historical-photographs
